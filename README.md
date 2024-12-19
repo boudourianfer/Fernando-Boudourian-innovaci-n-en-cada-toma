@@ -1,1 +1,2 @@
-# Fernando-Boudourian-innovaci-n-en-cada-toma
+# Fernando-Boudourian-innovación-en-cada-toma
+La fotografía es un equilibrio entre técnica y creatividad. Dominar las angulaturas permite explorar perspectivas únicas, como la cenital que realza patrones o la contrapicada que destaca imponencia. La composición, guiada por principios como la regla de los tercios o las líneas principales, transforma cada toma en una narrativa visual impactante. Cuando técnica y visión convergen, la imagen se convierte en arte.
